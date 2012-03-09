@@ -127,3 +127,42 @@ blinkering - privitization
 * The difference between grief with hope and grief without hope
   * Appropriate grief vs. numbed or exaggerated grief experience
   * Will follow very different sequence in terms of emotions, actions, outcomes, consequences
+
+* 1 Samuel 30 - David + men came back and found women + children captured
+  * Devastating loss of family + possessions
+  * Initial Reaction - Immediate and intense outpouring of grief
+    * Wept til they had no more strength to weep
+  * Fork in the road between constructive + destructive sorrow
+    * Destructive
+      * Men were "bitter in soul" (the malcontents, losers, and people in trouble were the ones following David around)
+      * Scapegoating, anger, hostility
+      * Want to stone David
+      * Grieved without true hope
+    * Constructive
+      * David strengthened himself in the Lord
+      * Sought God's will
+      * Acted in a constructive solution-oriented way
+      * Grieved in hope
+* In both cases, there is a process, but with different components
+
+* Depression stage of grief process is an emotional flattening
+
+* Grief in hope
+  * Face head on
+  * Degree fits loss
+  * Appropriate
+  * Simple/clean
+  * Goes somewhere
+    * Increase and purification of hope
+    * Appropriate action
+    * Increase in compassion and love for others
+* Grief with no hope
+  * Denial
+  * Overwhelming/crushed
+  * Hypersensitized
+  * Complicated/dirtied
+    * Anger
+    * Drunk
+    * Bargaining
+    * Cynicism
+  * "Acceptance"... move on
