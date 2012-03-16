@@ -75,3 +75,21 @@
   * Fatal flaw or internal contradiction
     * Whole thing rises or falls on idea of mental illnesses - they're not illnesses but they're illnesses
     * Replace "mental illness" with "fallenness" or "disfunctional worship disorder"
+* Is he a Freudian?
+  * Yes
+    * Unconscious motives
+    * Repression
+    * "mental illness" = neurosis, psychogenic
+    * hiding from hard realities
+    * Therapy/cure is to acknowledge and understand what's driving you and accept your dark side
+  * No, he's a freudian (lower case f)
+    * "mental illness" both/and about somatic and psychogenic
+      * Freud: either/or about somatic and psychogenic
+    * contents of psyche are more flexible (social, etc)
+      * Freud: contents of psyche are sexual
+
+* CS Lewis: I believe in Christianity as I believe in the sun - by it I see everything else
+* Bonhoeffer: Psychologist knows infinitely less about the human heart than the simplest question. Cannot grasp what sin is. In the presence of a psychiatrist, I can only be a sick man.
+
+* Want simple, not simplistic, interpretations of complex information
+  * "You either serve God or mammon"
