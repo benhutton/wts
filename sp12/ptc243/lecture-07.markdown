@@ -68,3 +68,35 @@ Reward
     * Self-esteem is most important question
 
 * Self-defeating because he claims to be unbiased and not influenced by a psychiatrist's personal philosophy... yet what he's presenting is a personal philosophy
+
+* At observation level, Burns is fascinating
+  * Bad model, but people do these things (cognitive distortions)
+  * Identifies 6 common idolatry patterns, but leaves the worst one standing (pride = I am God)
+* Resist overwhelming pressure for psychopharmacology to call all the shots
+  * We're cobelligerents
+  * Strugglers can do more than simply take medication
+* They get to practical goals and don't just leave things theoretical
+  * We often think about Biblical truth at the 100th floor but don't take it down to the street level
+  * We should be stimulated to be practical
+* Careful, methodical data gathering
+  * We do this with Dynamics
+* Willingness to be interventive and activistic
+  * Didn't pretend to be neutral and "just explore"
+  * Willing to say what they thought, give a point of view/interpretation
+* Homework, things to do, things to implement
+  * Take increased self awareness and turn it into concrete changes
+
+* Biblical counseling is most often perceived as being a Christianized version of CBT
+  * Should not be...
+    * Central role of the way you talk to yourself vs. the way you talk to someone else
+    * Our thought life is relational - talk to yourself in a way that pulls you out of yourself
+    * We should not treat emotions as the caboose, but mind, will, and emotion should all be subservient to our covenant loyalty (very hard to predict which leads the process)
+      * As ontological beings, everything is at the same level (mind, will emotions)
+      * As ethical beings, all of these are determined
+
+* Cognitive distortion focuses on pessimism, blinkers on optimism
+  * Stoic realism, the solution, is just another cognitive distortion
+  * Wise person takes relational outlook on life (with God and others), high esteem of God
+
+
+Game dynamics??
