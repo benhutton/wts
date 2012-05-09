@@ -79,21 +79,52 @@
 
 # My Empty, Secret Self Finds Fullness and Honesty in Jesus
 
-* Struggled against impulses
-* Conscience accurate
-* Brought sin into the light, asked for help
-* "Secret comfort", "secret garden", "precious friend" = problem
-  * Bettler: Christian life is the open life; nothing to hide
-* Mature theological vision
-* Involves husband and female friends; humility, reality to body of Christ
-* Gives glory to God
-* Locates struggle, aware of past factors and present temptations
-* Interpersonal version of mercy for strugglers
-* Not hostile, blameshifting - story is realistic, not grotesque
-* Recognizes that change is a process
-* Appropriate confession, not sensational
-* She seeks and finds the Lord who is her Savior
-  * Psalm 50:15 - call on me in day of trouble, I will rescue you and you will honor me
-* God is the giver of what is needed
-* Active member of her church, part of teaching and ministry and helping people, using her gifts in the body of Christ
-* On the scale of action, her patterns are mild - she didn't act on her fantasy life
+* Positives
+  * Struggled against impulses
+  * Conscience accurate
+  * Brought sin into the light, asked for help
+  * "Secret comfort", "secret garden", "precious friend" = problem
+    * Bettler: Christian life is the open life; nothing to hide
+  * Mature theological vision
+  * Involves husband and female friends; humility, reality to body of Christ
+  * Gives glory to God
+  * Locates struggle, aware of past factors and present temptations
+  * Interpersonal version of mercy for strugglers
+  * Not hostile, blameshifting - story is realistic, not grotesque
+  * Recognizes that change is a process
+  * Appropriate confession, not sensational
+  * She seeks and finds the Lord who is her Savior
+    * Psalm 50:15 - call on me in day of trouble, I will rescue you and you will honor me
+  * God is the giver of what is needed
+  * Active member of her church, part of teaching and ministry and helping people, using her gifts in the body of Christ
+  * On the scale of action, her patterns are mild - she didn't act on her fantasy life
+
+* Negatives
+  * Her original views:
+    * Thinks like a Pelagian: "If I didn't choose it, there must be some other cause"
+      * Can't see "just is/there"
+      * Wants an explanation for evil - but it makes no sense why people would sin
+      * She can't realize that this is there/a problem because the counselor blames external environmental/historical factors
+  * Counselor taught her:
+    * Reasons for lesbian attraction is external (she knows its sin but explains all the reasons as external)
+      * Personal history factors rooted in the family
+      * "nurture" causality
+    * Void/empty/longing/need view of the human heart (but doesn't really get to the heart)
+      * But her heart isn't empty and passive - its actively full of fear of man; desiring warmth, intimacy, and safety and love from people
+        * This never got dealt with
+      * Humans are always active verbs
+    * God as void-filler and need-meeter
+      * God is means to an end, not the end
+      * God forgives, relational
+
+History = vile father, impotent mother => Lesbian fantasy [nurture and intimacy]
+                                       => Edgy heterosexual [excitement and power]
+                                       => Antisocial fearful isolation (asexual) [refuge/safety]
+                                       => Escapist/numb with pleasure [avoidance/escape]
+                                       => Hope of redemption that drives you to marry the same kind of man as her father [playing redeemer]
+                                       => Live differently [honor of God]
+History can make many things plausable... that's why it works so well. So, because it seems to explain everything, it really explains nothing.
+  * Active view of the heart explains a lot better
+
+* Sin = disposition, drift, willful choice, impulse, obsession, seeming happenstance, opportunistic, devil's appetite for souls, worlds shaping influence, God's hardening of hearts
+
